@@ -14,7 +14,7 @@
 - **Medical:** Turner Syndrome
 - **Education:** Homeschooled by Mike and Terri Anne Key
 - **Religion:** Practicing Catholic
-- **Traits:** [TBD]
+- **Traits:** Resilient, independent, deeply faithful. Carries the quiet strength of a survivor. [Further traits TBD.]
 
 ---
 
@@ -32,7 +32,7 @@
 - **Mike Key (father):** [TBD]
 - **Terri Anne Williams-Key (mother):** [TBD]
 
-### Siblings
+### SIBLINGS
 
 - **Patti Anne Key** — older sister (swimming and piano)
 - **Jessica Isabella Key** — older sister; conjoined twin with Rachel Darcy; later separated. When Kiley Rose is **seven years old**, she and Jessica Isabella are playing near the stove when they accidentally knock a pot of boiling water. Jessica Isabella pushes Kiley Rose out of the way and takes the full spill on her own bare back. Jessica Isabella suffers second and third degree burns and is treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
@@ -48,9 +48,23 @@
 - **La Cienega dos Santos (age 21)** — Kiley Rose's second relationship, beginning when Kiley is 19. They meet at Cassiopeia Stars, a strip club. Their relationship is romantic and passionate — until Kiley Rose, at 21, walks in and finds La Cienega in bed with another woman. The trust breaks. The relationship ends.
 - **Julia (age 18)** — Kiley Rose's third relationship, beginning when Kiley is 22. They meet at Key Porn Studios in New York City. Their relationship is deeply romantic and loving — a quiet, steady anchor after the tumult of the first two. Julia meets Kiley Rose where she is, and she does not run.
 
-**Children with Lazaro da Silva:**
-- **Brandi Jessica Key** — identical twin daughter, born to Kiley Rose and Lazaro da Silva. Named after her aunt Jessica Isabella.
-- **Pandora Paige Key** — identical twin daughter, born to Kiley Rose and Lazaro da Silva.
+**Children with Lazaro da Silva (Identical Twins, born December 25, 2044):**
+- **Brandi Jessica Key** — identical twin daughter. Diagnosed with bilateral retinoblastoma at age seven (two days before Christmas, 2051); underwent bilateral enucleation to save her life. Wears custom ocular prosthetics and is completely blind. Pairs with her Labernese guide dog "Burden" at age twelve. Attends **Convent of the Sacred Heart**, New York City (91st Street). Named after her aunt Jessica Isabella.
+- **Pandora Paige Key** — identical twin daughter. Retinoblastoma survivor. Her sight was saved because Brandi Jessica's aggressive diagnosis on December 23, 2051, allowed early-stage, microscopic tumors to be detected and eradicated on the same day. Attends **Convent of the Sacred Heart**, New York City (91st Street).
+
+---
+
+## GRANDCHILDREN
+
+In adulthood, Brandi Jessica and Pandora Paige build a deeply loving joint household in New York City, raising **four children together** as co-mothers. The four cousins are biological full siblings (sharing 100% of the twins' genetics). Kiley Rose and Julia are the active, hands-on grandmothers:
+
+### Pandora Paige's Child:
+- **Bahiyya Farrah Key** (Granddaughter, born **~2066**). Pandora Paige was **twenty-one (21)** years old when Bahiyya was born. She is the eldest grandchild in the home.
+
+### Brandi Jessica's Children (Two Daughters and a Son):
+1.  **Iyeshia Caesarea Key** (Granddaughter, born **~2071**). Brandi Jessica was **twenty-six (26)** years old when Iyeshia was born.
+2.  **Jamal Mohammed Junior Key** (Grandson, born **~2074**). Born three years after Iyeshia, when Brandi Jessica was **twenty-nine (29)**.
+3.  **Kacy Kaniesa Key** (Granddaughter, born **~2077**). Born three years after Jamal, when Brandi Jessica was **thirty-two (32)**.
 
 ---
 
@@ -74,9 +88,54 @@ Turner Syndrome is one of the most consistent features of Kiley Rose's medical l
 - Fertility counselling is typically introduced as Kiley Rose grows older, so she can make informed decisions.
 - **Kiley Rose's pregnancy** is a rare spontaneous pregnancy — a statistical anomaly made possible by a mosaic form of Turner Syndrome. It is treated as high-risk from the start. She carries identical twin girls to term against medical caution, against pressure to terminate, against the odds.
 
-**Cognitive:**
-- Intelligence is generally in the normal range.
-- Some women with Turner Syndrome have specific difficulties with spatial reasoning, mathematics, and certain social-cognitive skills. These are navigated with care, support, and the same practical approach the family brings to everything else.
+---
+
+## RELATIONSHIPS
+
+Kiley Rose's emotional life is defined by three major relationships, each marking a distinct phase of her journey through first love, motherhood, betrayal, and eventually, a steady and lasting connection.
+
+### 1. Lazaro da Silva — First Love and the Chosen Path (Age 15)
+
+Kiley Rose meets Lazaro da Silva on a beach in Rio de Janeiro. She is fifteen; he is sixteen. It is her first real relationship—the kind that arrives with the heat of a Brazilian summer, full of discovery, and the particular brightness of being young and in love for the first time. 
+
+Their relationship is wonderful. Lazaro is charming, warm, and the connection between them feels effortless. Rio gives them a backdrop that belongs to the young: the beach, the salt, and the evenings stretching long. Kiley Rose, carrying Turner Syndrome and the weight of being the "unhurt sister" at home, finds something simple and uncomplicated with him. For a while, it is perfect.
+
+Then, she becomes pregnant with identical twins.
+
+The news fractures the warmth. Faced with a high-risk teenage pregnancy under the shadow of Turner Syndrome, Lazaro and his parents press heavily for an abortion, seeing it as the only practical path forward. But Kiley Rose cannot. Her Turner Syndrome makes a termination medically high-risk for her heart and body, and her Catholic faith makes it morally impossible. This is not stubbornness; it is who she is, formed by a family that taught her that her body is hers and some things are not negotiable.
+
+Because Lazaro cannot accept her choice and Kiley Rose cannot change, their relationship ends on that divide. Lazaro leaves. Kiley Rose carries the twins to term alone, supported by the Key family. Brandi Jessica and Pandora Paige are born on Christmas Day, December 25, 2044 (Kiley Rose is 16).
+
+On **December 23, 2051**—exactly two days before Christmas and their seventh birthday—the storm hits. Brandi Jessica is diagnosed with advanced bilateral retinoblastoma, requiring the immediate surgical removal of both eyes to save her life. Because they are identical twins, Pandora is screened that same afternoon, and early-stage tumors are successfully eradicated, saving her sight. Lazaro is entirely absent through this terrifying oncological battle, leaving Kiley Rose (23) to navigate the pediatric cancer ward during the Christmas season alone, backed only by her own family and the newly met Julia.
+
+### 2. La Cienega dos Santos — Passion and the Hidden Scar (Ages 19–21)
+
+At nineteen (2048), Kiley Rose meets La Cienega dos Santos at Cassiopeia Stars, a strip club where La Cienega works. Kiley Rose is a young single mother of four-year-old twins—one completely blind, one sighted—navigating the exhausting aftermath of a cancer battle and a pregnancy that nearly broke her. She is not looking for love, but she finds it anyway.
+
+La Cienega is twenty-one—confident, magnetic, and older than Kiley in the ways that matter at that age. She knows who she is and what she wants. Their relationship begins in the dim light of Cassiopeia Stars and quickly becomes a passionate, consuming romance that feels like a second chance at being young. 
+
+For two years, they build a life together. La Cienega is a warm, fixture-like presence in the twins' early childhood, helping Kiley with the girls and acting as a steady counterweight to Kiley's loneliness. But the trust collapses in a single moment when Kiley Rose, at twenty-one (2050), walks in and finds La Cienega in bed with another woman.
+
+Kiley Rose does not scream or fight. She simply walks away, carrying the same quiet resolve that carried her through her pregnancy. It becomes her second major scar—not on her skin, like Jessica's burns, but in her heart, teaching her that passion is not the same as loyalty. 
+
+### 3. Julia — The Steady Anchor (Age 22 onward)
+
+At twenty-two (2051), Kiley Rose meets theater artist Julia, 18, at Key Porn Studios in New York City. Having survived Lazaro's abandonment and La Cienega's betrayal, Kiley Rose is guarded, carrying the weight of both heartbreaks, and is not looking for a third chance.
+
+But Julia is different. She is young, but she possesses an innate steadiness—a quiet, patient presence that Kiley Rose recognizes immediately, reminiscent of the calm guidance Emma Fritz offered in her childhood. Julia does not rush, push, or demand that Kiley Rose be any different. She meets the Turner Syndrome, the twin daughters (one blind, one sighted), and the scars of Kiley's past with a steady, unblinking gaze: *I am here. You are here. We are still here.*
+
+Julia enters the lives of seven-year-old Brandi Jessica and Pandora Paige slowly and carefully, exactly during the terrifying storm of the cancer diagnosis in December 2051. She becomes the family's rock, standing by Kiley in the hospital over Christmas, and eventually helps the twins enroll at the **Convent of the Sacred Heart** on the Upper East Side (91st Street).
+
+**The "Anything and Everything" Parenting Philosophy:**
+As Brandi Jessica adapted to her total blindness, Kiley Rose and Julia formed a joint, unbreakable parenting philosophy: **blindness is an adjustment, never an excuse.** Refusing to let Brandi Jessica's world shrink, they committed to helping her do **anything and everything** her sister or cousins could do—there were no "no's," only "hows."
+*   **Ballet and Gymnastics — Without Any Single Doubt:** Before her diagnosis at age seven, Brandi Jessica was already taking Ballet and gymnastics. After her bilateral enucleation, when school officials, medical teams, and outside skeptics questioned the safety, balance, and spatial risks of keeping a blind child in these sports, **Kiley Rose and Julia let her continue both, without any single doubt.** They didn't debate, hesitate, or apologize; they simply worked with the teachers, adapted her training, and let her dance and tumble.
+*   **Tumbling & Gymnastics:** Julia developed tactile mat-markers (textured rubber strips) so Brandi Jessica could feel the tumbling layouts, while she and Kiley clapped or called from the edge of the mat to give her acoustic guidance.
+*   **High-Speed Sports:** Julia and Kiley introduced her to guided snow skiing—using a high-visibility vest and a two-way Bluetooth helmet headset so Julia could ski right behind her, calling out micro-directions (*"Right curve... hold... left turn... dip ahead..."*)—and water skiing, spot-directed by Kiley over a megaphone.
+*   **The Age Twelve Guide Dog — "Burden":** At age twelve (December 2056), they refused to wait for the traditional age of sixteen to get Brandi Jessica a guide dog. Backed by Kiley and Julia without any single doubt, they enrolled her in the pioneering youth program at the **Mira Foundation** in Sainte-Marie-Madeleine, Quebec. Brandi Jessica was matched with "Burden," a gentle, intelligent Labernese guide dog who accompanies her everywhere—including the classrooms and marble hallways of the Burden and Kahn mansions at Convent of the Sacred Heart.
+*   **Summer Camp at French Woods:** Believing the twins deserved sleepaway freedom, Kiley Rose and Julia sent them to **French Woods Festival of the Performing Arts** in the Catskill Mountains. Backed without any single doubt, the girls spend their summers designing their own artistic schedules, mastering their crafts, and playing alongside their cousins—Rachel's triplets, **Melissa, Marcos, and Annabella Key-d'Aboville**—forging a powerful cousin-connection.
+*   **The "Manhattan Drops":** When the twins turned ten, Kiley and Julia began dropping Brandi Jessica off in busy Manhattan neighborhoods with a list of Braille instructions, pushing her to navigate busy subway lines and crowded streets independently. While Brandi Jessica conquered the city block by block with her graphite cane, Kiley or Julia secretly trailed her from half a block behind—silent, fiercely proud, and ready to watch her succeed.
+
+Julia’s quiet, practical courage perfectly matched Kiley’s fierce maternal shield, ensuring that both twins grew up knowing that their lives, in their entirety, belonged to them.
 
 ---
 
@@ -142,15 +201,23 @@ The room is quiet. The house is quiet. Two sisters, one set of scars, one girl w
 
 - **Birth:** Born with Turner Syndrome. [Diagnosis timing TBD.]
 - **Childhood:** Growth hormone therapy begins; monitored carefully by specialists.
-- **Age seven — The kitchen accident:** Playing with Jessica Isabella near the stove, a pot of boiling water tips. Jessica pushes Kiley Rose out of the way and takes the full spill on her bare back. Second and third degree burns. Treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
-- **Age seven — Jessica Isabella's hospitalisation:** Jessica Isabella spends six months at Shriners. Skin grafting. Scarring. The family meeting where Mike and Terri Anne explain everything to Patti Anne, Rachel Darcy, Kiley Rose, and Sabrina Bryna (four years old, told in ASL). No one is left out.
-- **Age eleven — Jessica's bedroom:** Kiley Rose touches Jessica Isabella's healed back for the first time. Emma is there, guiding her hands, bridging the distance. The guilt is named. The truth is spoken. The scars are not a debt.
-- **Age fifteen (2044) — Lazaro da Silva:** Kiley Rose meets Lazaro da Silva, 16, on a beach in Rio de Janeiro. Her first real relationship. It is bright and warm and full of the particular joy of first love.
+- **Age seven (December 2035) — The kitchen accident:** Playing with Jessica Isabella near the stove, a pot of boiling water tips. Jessica pushes Kiley Rose out of the way and takes the full spill on her bare back. Second and third degree burns. Treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
+- **Age seven (2035–2036) — Jessica Isabella's hospitalisation:** Jessica Isabella spends six months at Shriners. Skin grafting. Scarring. The family meeting where Mike and Terri Anne explain everything to Patti Anne, Rachel Darcy, Kiley Rose, and Sabrina Bryna (four years old, told in ASL). No one is left out.
+- **Age eleven (December 2039) — Jessica's bedroom:** Kiley Rose touches Jessica Isabella's healed back for the first time. Emma is there, guiding her hands, bridging the distance. The guilt is named. The truth is spoken. The scars are not a debt.
+- **Age fifteen (Early/Mid 2044) — Lazaro da Silva:** Kiley Rose meets Lazaro da Silva, 16, on a beach in Rio de Janeiro. Her first real relationship. It is bright and warm and full of the particular joy of first love.
 - **Age fifteen (2044) — Pregnancy:** Kiley Rose becomes pregnant with identical twins. Lazaro and his parents pressure her to terminate. She cannot — her Turner Syndrome makes abortion medically high-risk, and her Catholic faith makes it impossible for her to choose. The relationship fractures. She carries the twins alone, with her family beside her.
-- **Age fifteen-sixteen (2044–2045) — Birth of Brandi Jessica and Pandora Paige:** Kiley Rose gives birth to identical twin daughters. Brandi Jessica is named after her aunt Jessica Isabella. Pandora Paige is her sister. Two girls born from a rare spontaneous pregnancy against the odds of Turner Syndrome, against the pressure to terminate, against everything that said this could not happen. They are proof that Kiley Rose's body did something the textbooks said was nearly impossible.
+- **Age sixteen (December 25, 2044) — Birth of Brandi Jessica and Pandora Paige:** Kiley Rose gives birth to identical twin daughters on Christmas Day. Brandi Jessica is named after her aunt Jessica Isabella. Pandora Paige is her sister. Two girls born from a rare spontaneous pregnancy against the odds of Turner Syndrome, against the pressure to terminate, against everything that said this could not happen.
 - **Age nineteen (2048) — La Cienega dos Santos:** Kiley Rose meets La Cienega dos Santos, 21, at Cassiopeia Stars. A passionate romance follows — scrap of warmth and adult desire, after the hard years of early motherhood.
 - **Age twenty-one (2050) — The betrayal:** Kiley Rose walks in and finds La Cienega in bed with another woman. The relationship ends. The trust does not mend.
 - **Age twenty-two (2051) — Julia:** Kiley Rose meets Julia, 18, at Key Porn Studios in New York City. Julia is different. She is not Rio, not Cassiopeia Stars. She is someone who sees Kiley Rose — the whole of her, the twins, the Turner Syndrome, the scars of every kind — and stays.
+- **Age twenty-three (December 23, 2051) — The Cancer Battle:** Brandi Jessica is diagnosed with advanced bilateral retinoblastoma exactly two days before Christmas and their seventh birthday. She undergoes bilateral enucleation to save her life. Pandora is screened that same day; her microscopic tumors are caught early and treated, saving her sight. Kiley Rose navigates this battle supported by the Key family and Julia.
+- **Age twenty-three (~December 2051) — School Enrollment:** Supported by Kiley and Julia, the twins enroll at the prestigious **Convent of the Sacred Heart** in NYC (91st Street), mirroring their cousins' education in Halifax.
+- **Age twenty-eight (December 2056) — Brandi Jessica's Guide Dog:** Brandi Jessica (12) is paired with "Burden," her Labernese guide dog from the Mira Foundation in Quebec, supported without any single doubt by Kiley and Julia.
+- **Age twenty-eight (~2056 onward) — French Woods Summers:** Supported without any single doubt, the twins spend their summers at French Woods in the Catskills, forging a deep lifelong bond with their cousins Melissa, Marcos, and Annabella.
+- **Age thirty-seven (~2066) — First Grandchild:** Pandora Paige (21) gives birth to her daughter, **Bahiyya Farrah Key**, making Kiley Rose and Julia proud grandmothers.
+- **Age forty-two (~2071) — Second Grandchild:** Brandi Jessica (26) gives birth to her first daughter, **Iyeshia Caesarea Key**.
+- **Age forty-five (~2074) — Third Grandchild:** Brandi Jessica (29) gives birth to her son, **Jamal Mohammed Junior Key**.
+- **Age forty-eight (~2077) — Fourth Grandchild:** Brandi Jessica (32) gives birth to her second daughter, **Kacy Kaniesa Key**.
 - **Adolescence:** Kiley Rose learns about her fertility situation. The Key family holds this conversation with her carefully and completely.
 - **Fertility decisions:** [TBD.]
 
@@ -158,11 +225,13 @@ The room is quiet. The house is quiet. Two sisters, one set of scars, one girl w
 
 ## ARC AND CORE THEME
 
-Kiley Rose Key is the sister who was unhurt. Seven years old, playing near the stove, a pot tips, and someone pushes her out of the way. She walks away without a mark. Her older sister does not. The scars on Jessica Isabella's back are permanent. Kiley Rose's are not. But she carries something anyway.
+Kiley Rose Key is the sister who was unhurt. Urban, independent, and resilient. Seven years old, playing near the stove, a pot tips, and someone pushes her out of the way. She walks away without a mark. Her older sister does not. The scars on Jessica Isabella's back are permanent. Kiley Rose's are not. But she carries something anyway.
 
 She also carries Turner Syndrome — not as a tragedy, not as something to be pitied or managed into the background, but as a fact of her body that her family treats the same way they treat everything else: practically, carefully, completely. Growth hormone therapy. Estrogen replacement. Fertility conversations when she is old enough. Cardiology appointments. The whole medical landscape of a chromosomal deletion that shapes but does not define her.
 
-She carries a rare spontaneous pregnancy that the textbooks said was nearly impossible. She carries identical twin daughters born against the odds, against the pressure to terminate, against a body that was supposed to be infertile. She carries the man who could not stay when she chose to keep them. She carries La Cienega, whose betrayal taught her that passion is not the same as trust. And she carries Julia, who arrived in New York and met her where she actually was — not as a girl from Rio, not as a woman betrayed, but as someone still learning what love can look like when it stays.
+She carries a rare spontaneous pregnancy that the textbooks said was nearly impossible. She carries identical twin daughters born against the odds, against the pressure to terminate, against a body that was supposed to be infertile. She carries the man who could not stay when she chose to keep them, and the devastating oncology battle that took her firstborn twin's eyes on their seventh birthday, two days before Christmas. She carries the generational mirror of the "hurt and unhurt" sister, seeing the exact same dynamic play out in her daughters Brandi Jessica and Pandora Paige, both clad in their plaid Convent of the Sacred Heart uniforms as they navigate the bustling streets of Manhattan.
+
+She carries La Cienega, whose betrayal taught her that passion is not the same as trust. And she carries Julia, who arrived in New York and met her where she actually was — not as a girl from Rio, not as a woman betrayed, but as someone still learning what love can look like when it stays.
 
 At eleven, she finally touched the scars. She learned that Jessica does not carry them for her. She carries them because that is who she is. And Kiley Rose does not need to repay them. She only needs to see them.
 
