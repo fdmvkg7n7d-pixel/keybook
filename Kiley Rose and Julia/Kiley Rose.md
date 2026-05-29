@@ -44,7 +44,13 @@
 
 ### Partner(s) / Children
 
-- [TBD]
+- **Lazaro da Silva (age 16)** — Kiley Rose's first relationship at age 15. They meet on a beach in Rio de Janeiro. Their relationship is wonderful until Kiley Rose becomes pregnant with identical twins. Lazaro and his parents pressure her to have an abortion, but Kiley Rose cannot — her Turner Syndrome makes a termination medically high-risk, and her Catholic faith forbids it. The relationship does not survive the divide.
+- **La Cienega dos Santos (age 21)** — Kiley Rose's second relationship, beginning when Kiley is 19. They meet at Cassiopeia Stars, a strip club. Their relationship is romantic and passionate — until Kiley Rose, at 21, walks in and finds La Cienega in bed with another woman. The trust breaks. The relationship ends.
+- **Julia (age 18)** — Kiley Rose's third relationship, beginning when Kiley is 22. They meet at Key Porn Studios in New York City. Their relationship is deeply romantic and loving — a quiet, steady anchor after the tumult of the first two. Julia meets Kiley Rose where she is, and she does not run.
+
+**Children with Lazaro da Silva:**
+- **Brandi Jessica Key** — identical twin daughter, born to Kiley Rose and Lazaro da Silva. Named after her aunt Jessica Isabella.
+- **Pandora Paige Key** — identical twin daughter, born to Kiley Rose and Lazaro da Silva.
 
 ---
 
@@ -66,6 +72,7 @@ Turner Syndrome is one of the most consistent features of Kiley Rose's medical l
 - Spontaneous pregnancy is possible but rare, more common in mosaic forms of the condition.
 - Egg donation (oocyte donation) is the most established path to pregnancy for those who wish to carry a child; it carries increased cardiovascular risk and is treated as a high-risk pregnancy.
 - Fertility counselling is typically introduced as Kiley Rose grows older, so she can make informed decisions.
+- **Kiley Rose's pregnancy** is a rare spontaneous pregnancy — a statistical anomaly made possible by a mosaic form of Turner Syndrome. It is treated as high-risk from the start. She carries identical twin girls to term against medical caution, against pressure to terminate, against the odds.
 
 **Cognitive:**
 - Intelligence is generally in the normal range.
@@ -138,6 +145,12 @@ The room is quiet. The house is quiet. Two sisters, one set of scars, one girl w
 - **Age seven — The kitchen accident:** Playing with Jessica Isabella near the stove, a pot of boiling water tips. Jessica pushes Kiley Rose out of the way and takes the full spill on her bare back. Second and third degree burns. Treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
 - **Age seven — Jessica Isabella's hospitalisation:** Jessica Isabella spends six months at Shriners. Skin grafting. Scarring. The family meeting where Mike and Terri Anne explain everything to Patti Anne, Rachel Darcy, Kiley Rose, and Sabrina Bryna (four years old, told in ASL). No one is left out.
 - **Age eleven — Jessica's bedroom:** Kiley Rose touches Jessica Isabella's healed back for the first time. Emma is there, guiding her hands, bridging the distance. The guilt is named. The truth is spoken. The scars are not a debt.
+- **Age fifteen (2044) — Lazaro da Silva:** Kiley Rose meets Lazaro da Silva, 16, on a beach in Rio de Janeiro. Her first real relationship. It is bright and warm and full of the particular joy of first love.
+- **Age fifteen (2044) — Pregnancy:** Kiley Rose becomes pregnant with identical twins. Lazaro and his parents pressure her to terminate. She cannot — her Turner Syndrome makes abortion medically high-risk, and her Catholic faith makes it impossible for her to choose. The relationship fractures. She carries the twins alone, with her family beside her.
+- **Age fifteen-sixteen (2044–2045) — Birth of Brandi Jessica and Pandora Paige:** Kiley Rose gives birth to identical twin daughters. Brandi Jessica is named after her aunt Jessica Isabella. Pandora Paige is her sister. Two girls born from a rare spontaneous pregnancy against the odds of Turner Syndrome, against the pressure to terminate, against everything that said this could not happen. They are proof that Kiley Rose's body did something the textbooks said was nearly impossible.
+- **Age nineteen (2048) — La Cienega dos Santos:** Kiley Rose meets La Cienega dos Santos, 21, at Cassiopeia Stars. A passionate romance follows — scrap of warmth and adult desire, after the hard years of early motherhood.
+- **Age twenty-one (2050) — The betrayal:** Kiley Rose walks in and finds La Cienega in bed with another woman. The relationship ends. The trust does not mend.
+- **Age twenty-two (2051) — Julia:** Kiley Rose meets Julia, 18, at Key Porn Studios in New York City. Julia is different. She is not Rio, not Cassiopeia Stars. She is someone who sees Kiley Rose — the whole of her, the twins, the Turner Syndrome, the scars of every kind — and stays.
 - **Adolescence:** Kiley Rose learns about her fertility situation. The Key family holds this conversation with her carefully and completely.
 - **Fertility decisions:** [TBD.]
 
@@ -149,7 +162,11 @@ Kiley Rose Key is the sister who was unhurt. Seven years old, playing near the s
 
 She also carries Turner Syndrome — not as a tragedy, not as something to be pitied or managed into the background, but as a fact of her body that her family treats the same way they treat everything else: practically, carefully, completely. Growth hormone therapy. Estrogen replacement. Fertility conversations when she is old enough. Cardiology appointments. The whole medical landscape of a chromosomal deletion that shapes but does not define her.
 
-At eleven, she finally touches the scars. She learns that Jessica does not carry them for her. She carries them because that is who she is. And Kiley Rose does not need to repay them. She only needs to see them.
+She carries a rare spontaneous pregnancy that the textbooks said was nearly impossible. She carries identical twin daughters born against the odds, against the pressure to terminate, against a body that was supposed to be infertile. She carries the man who could not stay when she chose to keep them. She carries La Cienega, whose betrayal taught her that passion is not the same as trust. And she carries Julia, who arrived in New York and met her where she actually was — not as a girl from Rio, not as a woman betrayed, but as someone still learning what love can look like when it stays.
+
+At eleven, she finally touched the scars. She learned that Jessica does not carry them for her. She carries them because that is who she is. And Kiley Rose does not need to repay them. She only needs to see them.
+
+The same is true of everything she carries now. She does not need to repay it. She only needs to see it — and, with Julia beside her, keep moving forward.
 
 What Kiley Rose faces, she faces in a house full of people who have each reckoned with something. She is not alone in that. But she is alone in exactly what she carries.
 
