@@ -8,6 +8,7 @@
 
 - **Full Name:** Rachel Darcy Key
 - **Position in Family:** Third of eight sisters
+- **Birth Timing:** Born **thirty months after Patti Anne Key**, as Jessica Isabella's conjoined twin.
 - **Status:** Conjoined twin — joined with Jessica Isabella Key; later separated
 - **Biological Mother:** Terri Anne Williams-Key
 - **Biological Father:** Mike Key
@@ -43,11 +44,11 @@
 
 - **Patti Anne Key** — older sister (swimming and piano)
 - **Jessica Isabella Key** — older sister; conjoined twin. Born conjoined with Rachel Darcy, sharing one liver and one reproductive system. They are later surgically separated. Jessica Isabella receives the shared reproductive system. The twins share a bedroom and bathroom until Jessica's pregnancy.
-- **Kiley Rose Key** — younger sister (Turner Syndrome; gymnastics and swimming)
-- **Sabrina Bryna Key** — younger sister (Cerebral Palsy; deaf; communicates in ASL; yoga and swimming)
-- **Fallon Glenda Key** — younger sister (swimming and horseback riding)
-- **Andrea Jennifer Key** — younger sister (swimming, writing, and guitar)
-- **Ashley Erin Key** — youngest sister (acting, guitar, and swimming)
+- **Kiley Rose Key** — younger sister, born **four years after Jessica Isabella and Rachel Darcy** (Turner Syndrome; gymnastics and swimming)
+- **Sabrina Bryna Key** — younger sister, born **eighteen months after Kiley Rose** (Cerebral Palsy; deaf; communicates in ASL; yoga and swimming).
+- **Fallon Glenda Key** — younger sister, born **thirty months after Sabrina Bryna** (swimming and horseback riding).
+- **Andrea Jennifer Key** — younger sister, born **eighteen months after Fallon Glenda** (swimming, writing, and guitar).
+- **Ashley Erin Key** — youngest sister, born **two years after Andrea Jennifer**; transgender girl, assigned male at birth; original name **Mikkel James Junior** (acting, guitar, and swimming).
 
 ### Partner / Children
 

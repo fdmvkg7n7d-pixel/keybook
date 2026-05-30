@@ -17,7 +17,7 @@
 ### KEY LIFE EVENT
 
 - **Age 8:** Saves Klara's life at a temporary foster home. Following this event, Klara becomes Patti Anne's foster daughter and joins the family as Gamaliel's foster sister.
-- **Four months earlier (~age 7-8):** Klára tells Gamaliel a dark secret — her biological father physically abuses her. Gamaliel carries the secret until he cannot anymore, then tells Mike. He vomits his dinner from the distress of carrying it. Mike calls his contacts in the **OPP (Ontario Provincial Police)** that same night. Klára is removed from her father's home and placed in temporary foster care. (See `gamaliel-tells-mike-scene.md` for the full prose scene.)
+- **Four months earlier (~age 7-8):** Klára tells Gamaliel a dark secret — her biological father physically abuses her. Gamaliel carries the secret until he cannot anymore, then tells Mike. He vomits his dinner from the distress of carrying it. Mike calls his contacts in the **OPP (Ontario Provincial Police)** that same night. Mike then tells Patti Anne what her "little man" — Patti Anne's nickname for Gamaliel Galvin — told him. Klára is removed from her father's home and placed in temporary foster care. (See `gamaliel-tells-mike-scene.md` and `mike-tells-patti-anne-about-klara-father-scene.md`.)
 
 ### EDUCATION
 

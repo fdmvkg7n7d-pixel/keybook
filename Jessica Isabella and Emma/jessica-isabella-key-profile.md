@@ -8,6 +8,7 @@
 
 - **Full Name:** Jessica Isabella Key
 - **Position in Family:** Second of eight sisters
+- **Birth Timing:** Born **thirty months after Patti Anne Key**.
 - **Status:** Conjoined twin — joined with Rachel Darcy Key; later separated
 - **Biological Mother:** Terri Anne Williams-Key
 - **Biological Father:** Mike Key
@@ -43,11 +44,11 @@
 
 - **Patti Anne Key** — older sister (swimming and piano)
 - **Rachel Darcy Key** — younger sister; conjoined twin. Jessica Isabella and Rachel Darcy are born joined, sharing one liver and one reproductive system. They are later surgically separated. Jessica Isabella receives the shared reproductive system. She later offers Rachel Darcy her eggs so that Rachel Darcy can have a family. The twins share a bedroom and bathroom until Jessica Isabella becomes pregnant with Samira Chaka and Sahara Hannan (father unknown). Four months after the twins are born, Rachel Darcy walks into the bathroom and sees Jessica Isabella and Emma kissing in the bathtub. She turns around quickly. She goes to Terri Anne. The secret is over. Rachel Darcy is now attending the University of Virginia to study dance.
-- **Kiley Rose Key** — younger sister (Turner Syndrome; gymnastics and swimming). When Kiley Rose is seven years old, she and Jessica Isabella are playing near the stove when they accidentally knock a pot of boiling water. Jessica Isabella pushes Kiley Rose out of the way and takes the full force of the spill on her own bare back. Jessica Isabella suffers second and third degree burns and is treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
-- **Sabrina Bryna Key** — younger sister (Cerebral Palsy; deaf; communicates in ASL; yoga and swimming). Sabrina Bryna is **four years old** when the kitchen accident happens. Mike and Terri Anne explain to her in ASL what is happening to Jessica Isabella.
-- **Fallon Glenda Key** — younger sister (swimming and horseback riding)
-- **Andrea Jennifer Key** — younger sister (swimming, writing, and guitar)
-- **Ashley Erin Key** — youngest sister (acting, guitar, and swimming)
+- **Kiley Rose Key** — younger sister, born **four years after Jessica Isabella and Rachel Darcy** (Turner Syndrome; gymnastics and swimming). When Kiley Rose is seven years old, she and Jessica Isabella are playing near the stove when they accidentally knock a pot of boiling water. Jessica Isabella pushes Kiley Rose out of the way and takes the full force of the spill on her own bare back. Jessica Isabella suffers second and third degree burns and is treated at Shriners Children's Hospital. Kiley Rose is unhurt. She carries this differently.
+- **Sabrina Bryna Key** — younger sister, born **eighteen months after Kiley Rose** (Cerebral Palsy; deaf; communicates in ASL; yoga and swimming). Sabrina Bryna is **four years old** when the kitchen accident happens. Mike and Terri Anne explain to her in ASL what is happening to Jessica Isabella.
+- **Fallon Glenda Key** — younger sister, born **thirty months after Sabrina Bryna** (swimming and horseback riding).
+- **Andrea Jennifer Key** — younger sister, born **eighteen months after Fallon Glenda** (swimming, writing, and guitar).
+- **Ashley Erin Key** — youngest sister, born **two years after Andrea Jennifer**; transgender girl, assigned male at birth; original name **Mikkel James Junior** (acting, guitar, and swimming).
 
 ### Wife
 
