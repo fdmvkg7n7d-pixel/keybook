@@ -11,6 +11,7 @@
 - **Position:** Jessica Isabella Key's **wife** (married ~2050); co-parent to Samira Chaka and Sahara Hannan. *(They were partners from age sixteen; the relationship was secret until the twins were four months old, and they married as adults.)*
 - **Biological Mother:** Catherine Fritz — Muslim, single mother, administrative assistant. A woman who loved completely and quietly, who held everything together after Randy left, and who taught Emma — by example — that love is what you do when you can't say it. **Died of breast cancer when Emma was eight.** Everything Emma carries of her mother, she carries as memory.
 - **Biological Father:** Randy Fritz [the family share the surname Fritz — Catherine, Randy, and Emma are all Fritz]. The man who left when Emma was five — not a villain, a person who could not sustain. Then, when Emma was eight and Catherine died, the man who **returned** — not out of love, but obligation, because there was no one else. He raised Emma in Burlington without warmth: a roof, food, the gymnastics fees, but not affection. And finally, when Emma was sixteen, the man who **abandoned her a second time** — disowning her when she came out. Emma is abandoned twice by the same person: once by his leaving, once by his rejection.
+- **Paternal Half-Sister:** Patti Anne Key (oldest Key sister). They share biological father Randy Fritz. Neither Emma nor Patti Anne know they are sisters until Emma is sixteen.
 - **Education:** Attended Burlington public schools; trained at Burlington Gymnastics Club
 - **Religion:** Raised Muslim by Catherine. Not consistently practicing at sixteen — she knows the prayers, the rhythm, the language of her mother's faith, but has never been immersed in a Muslim community. After Catherine died, the faith became one more thing she carried alone: the prayer rug she kept, the words she remembered, her mother's dawn. Randy is also Muslim, but his faith is rigid and dutiful rather than tender; it is no comfort to her. She carries Islam the way she carries everything: quietly, privately, in the margins. Her faith intersects with Jessica's Catholicism not as conflict but as resonance — both traditions teach that love is sacred, that the highest act is to love without condition.
 - **Traits:** Steadfast. Patient. The kind of person who waits without making a performance of it. Does not reach — she stays. But staying is its own reaching. Has learned to need less — to translate her wants into something quieter, more acceptable, less burdensome. This is both her strength and her limitation. The one who stays. But also the one who disappears into her own goodness.
@@ -191,7 +192,7 @@ Mike is the man who told a child that no one touches her body without permission
 
 ### The Sisters
 
-- **Patti Anne Key** — older sister. [TBD]
+- **Patti Anne Key** — oldest Key sister. Emma's paternal half-sister (they share biological father Randy Fritz). Neither Emma nor Patti Anne know they are sisters until Emma is sixteen.
 - **Kiley Rose Key** — younger sister (Turner Syndrome; gymnastics and swimming). When Kiley Rose is seven, Jessica takes the boiling water meant for her. Emma knows this story. (See Kiley Rose's profile: at eleven, Kiley touches Jessica's scars for the first time, and Emma is the one who guides her hands.)
 - **Sabrina Bryna Key** — younger sister (Cerebral Palsy; deaf; communicates in ASL). [TBD — whether Emma learns ASL, and what that means. If Emma learns ASL, it is another quiet act of entering the Key family — another door she walks through without being asked.]
 - **Fallon Glenda Key** — younger sister. [TBD]
@@ -231,6 +232,8 @@ Then the pregnancy deepens. Samira Chaka and Sahara Hannan. Father unknown. The 
 What Emma does at sixteen is the thing that defines her: she stays when staying is invisible. She stays when the world expects her to walk away. She stays when the question is not whether she will stay, but whether she can be seen doing it. And the answer, for Emma, has always been yes. Even if no one knows.
 
 This is also the year her father throws her away. (See the Key family profiles.) The same year she is most fully a partner and a parent in secret is the year Randy, the man who left and came back without love, leaves her a final time — and the Keys take her in.
+
+**This is also the year Emma learns that Patti Anne Key is her paternal half-sister.** At sixteen, Emma and Patti Anne discover they share biological father Randy Fritz.
 
 ---
 
@@ -405,6 +408,7 @@ This is what Jessica guides Emma through. Not a single moment of revelation, but
 - **The names.** Jessica names the twins Samira Chaka and Sahara Hannan. Arabic names — Emma's, and Catherine's. The moment Emma (and her dead mother) is written into the children's lives.
 - **The pregnancy — Samira Chaka and Sahara Hannan.** Jessica's biological daughters. Father unknown. Emma is a parent, in the margins.
 - **Age sixteen — Randy disowns Emma.** The third abandonment, the chosen one. (See Key family profiles: Randy tells Mike to take the twins away "before she turns them into lesbians"; Mike throws Randy out and fires him; Mike and Terri Anne take Emma into their home.) Emma loses her last blood family and gains a chosen one.
+- **Age sixteen — Emma learns Patti Anne Key is her paternal half-sister.** Emma and Patti Anne discover they share biological father Randy Fritz.
 - **Emma reaches.** The moment after the twins are born when Emma asks for something for the first time. *I need you.* The beginning of a new way of being.
 - **[TBD — the full Key-family reckoning; whether Emma ever visits Catherine's grave with Jessica or the twins.]**
 
