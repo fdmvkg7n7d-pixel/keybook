@@ -105,16 +105,16 @@ At camp, Brandi Jessica is a force of nature. She navigates the camp paths with 
 
 In adulthood, Brandi Jessica and Pandora Paige build a deeply loving, synchronized joint family, raising **four children together** under one roof in New York City. The children are raised with co-mothers and are biological full siblings (sharing 100% of the twins' genetics). 
 
-### Brandi Jessica's Children (Two Daughters and a Son)
-Brandi Jessica gave birth to three children, spaced **three years apart**:
+### Brandi Jessica's Children (Two Daughters and a Son — all fathered by Jamal)
+Brandi Jessica gave birth to three children with Jamal, spaced **three years apart**:
 
-1.  **Iyeshia Caesarea Key** (Daughter, born **~2071**). Brandi Jessica was **twenty-six (26)** years old when Iyeshia was born. As the eldest daughter of a blind mother, Iyeshia has a sharp auditory focus and a deep love for music.
-2.  **Jamal Mohammed Junior Key** (Son, born **~2074**). Born three years after Iyeshia, when Brandi Jessica was **twenty-nine (29)**. Named in honor of the family's joint legacy, Jamal is an active, protective son who loves physical sports and matches his cousins' energy.
-3.  **Kacy Kaniesa Key** (Daughter, born **~2077**). Born three years after Jamal, when Brandi Jessica was **thirty-two (32)**. Kacy completed the household's trio of siblings, a creative and independent daughter.
+1.  **Iyeshia Caesarea Key** (Daughter, born **~2071**). Brandi Jessica was **twenty-six (26)** years old when Iyeshia was born. Father: Jamal.
+2.  **Jamal Mohammed Junior Key** (Son, born **~2074**). Born three years after Iyeshia, when Brandi Jessica was **twenty-nine (29)**. Father: Jamal. Named in honor of Jamal and Mohammed.
+3.  **Kacy Kaniesa Key** (Daughter, born **~2077**). Born three years after Jamal, when Brandi Jessica was **thirty-two (32)**. Father: Jamal.
 
 ### Pandora Paige's Child
 Raised alongside Brandi Jessica’s children in their joint household:
-- **Bahiyya Farrah Key** (Daughter, born **~2066**). Pandora Paige gave birth to her when she was **twenty-one (21)** years old. Bahiyya is the eldest of the four children in the home.
+- **Bahiyya Farrah Key** (Daughter, born **~2066**). Pandora Paige gave birth to her when she was **twenty-one (21)** years old. Father: Bassem. Bahiyya is the eldest of the four children in the home.
 
 ### The Genetic & Oncological Screening Protocol
 Because Brandi Jessica and Pandora Paige carry the **germline *RB1* mutation** (the genetic marker for hereditary Retinoblastoma), any children they bear have a **50% chance** of inheriting the mutation.
@@ -156,6 +156,10 @@ Brandi Jessica lost her eyes, but in doing so, **she became the reason her ident
 - **Pandora Paige (Twin Sister):** They share a face, a voice, and a deep, intuitive identical twin language. They walk the halls of Sacred Heart and French Woods together, and co-parent their joint family in Manhattan. Pandora is Brandi Jessica's visual window to the world, translating the visual spectrum into rich descriptions.
 - **Julia:** Julia enters her life at age seven, exactly when the cancer diagnosis hits. Patient, quiet, and deeply respectful of the twins' space, Julia built trust during the hospital stay. She learned Braille herself to connect with Brandi Jessica, and acts as her guide, partner-in-crime, and co-conspirator. Now, she is a proud grandmother, helping manage stroller routes and family dinners.
 - **Lazaro da Silva (Father):** Absent. He ran from Kiley's pregnancy and chose not to look back, missing the entire storm of the cancer and the girls' survival. Brandi Jessica has no memory of him and feels no space for him.
+- **Romantic Relationships (in order — all kept in this single file):**
+  1. **Diederik** — first boyfriend. Awful to Brandi Jessica. She starts dating Diederik when she is fifteen.
+  2. **Mohammed** — second boyfriend. Awful to Brandi Jessica. She starts dating Mohammed when she is eighteen. While dating Mohammed, Brandi Jessica cheated on him with Jamal.
+  3. **Jamal** — third relationship. She starts dating Jamal secretly when she is twenty-one. Mohammed and Jamal are best friends until he catches Brandi Jessica and Jamal sleeping together. Jamal is the father of all three of Brandi Jessica's children: Iyeshia Caesarea, Jamal Mohammed Junior, and Kacy Kaniesa.
 
 ---
 

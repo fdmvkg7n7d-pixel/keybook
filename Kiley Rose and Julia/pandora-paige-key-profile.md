@@ -140,6 +140,9 @@ In response, Pandora has become her sister's primary visual translator. Their tr
 - **Brandi Jessica (Twin Sister):** Her other half. Their bond is unbreakable, anchored by their shared voice, shared face, and their complementary way of navigating the world. They move as one, raising their joint family together.
 - **Julia:** Julia enters their lives in New York when the twins are seven years old, exactly during the storm of the cancer diagnosis. Julia's calm, steady presence is the anchor they needed during the hospital stay. Julia respected their twin bond and focused on supporting Brandi Jessica's physical independence. Now, she is a proud grandmother, co-managing their busy household's events and meals.
 - **Lazaro da Silva (Father):** Absent. Pandora feels a quiet, cold anger toward the father who abandoned them before they were born and was nowhere to be found when her sister was losing her eyes in a hospital. She has no desire to ever meet him.
+- **Romantic Relationships (in order):**
+  1. **Cohen** — first boyfriend. Pandora starts dating Cohen when she is fifteen. When she is nineteen, she becomes pregnant but loses the pregnancy. About four months after losing the pregnancy, Pandora Paige and Cohen decide they should break up.
+  2. **Bassem** — second relationship. She starts dating Bassem when she is twenty-one years old. When they are dating for two years, they have a baby girl: Bahiyya Farrah.
 
 ---
 
