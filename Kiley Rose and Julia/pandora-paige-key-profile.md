@@ -64,6 +64,19 @@ At camp, Pandora finds her own voice and artistic center. While she is always ne
 
 ---
 
+## THE TIJUANA DISCOVERY — SAVING CARLOTA DELICIA
+
+At approximately **twenty years old**, Pandora Paige was in **Tijuana, Mexico**. While there, she spotted her cousin, **Carlota Delicia Key**, in a sleazy bar. Carlota had been missing for **forty-two months** (three and a half years) after being kidnapped by her father, Carlos Reyes, at age nine.
+
+Pandora utilized her training as a photographer and her sharp instincts to act as the family’s eyes in a moment of crisis:
+*   **The Secret Photograph:** Recognizing the danger of the situation, Pandora did **not** approach or introduce herself. Instead, she stayed in the shadows and secretly captured a photograph of Carlota. 
+*   **Proof of Life:** She sent the image immediately to her aunt, **Sabrina Bryna Key**. This photograph provided the first definitive proof in three and a half years that Carlota was alive, ending the agonizing period of not knowing.
+*   **The Rescue:** Pandora’s intelligence and photographic evidence allowed Sabrina Bryna and William to fly to Tijuana and, with the help of the police, successfully rescue Carlota and bring her home.
+
+This event is a defining moment for Pandora, illustrating her role as a protector and a "visual anchor" for the family. While she spent her childhood helping her sister see the world, in Tijuana, she used her sight to save a life.
+
+---
+
 ## THE SHARED FAMILY — THE NEXT GENERATION
 
 In adulthood, Pandora Paige and Brandi Jessica build a deeply loving, synchronized joint family, raising **four children together** under one roof in New York City. The children are raised with co-mothers and are biological full siblings (sharing 100% of the twins' genetics). 

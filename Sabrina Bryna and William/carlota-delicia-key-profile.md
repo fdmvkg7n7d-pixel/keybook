@@ -59,13 +59,21 @@ Carlos is arrested in Mexico City and imprisoned there.
 
 ---
 
-## POST-KIDNAPPING
+## POST-KIDNAPPING & RECOVERY
 
-Carlota Delicia returns home at approximately **twelve or thirteen years old**.
+Carlota Delicia returns home at approximately **twelve or thirteen years old**. 
 
-She no longer signs. The shared language with her deaf mother is gone.
+### The Language Barrier
+The most immediate and painful consequence of the kidnapping is the **destruction of her ASL**. Carlos forced her to stop signing to distance her from her mother. Upon her return, she is a hearing girl in a household where the primary language is one she no longer speaks. This creates a profound emotional wall between her and Sabrina Bryna.
 
-[TBD — Recovery. Reintegration with Sabrina. Relationship with her five half-siblings. Does she ever sign again? How does she process what happened?]
+### The Reintegration Process
+*   **Medical & Trauma Care:** Carlota undergoes extensive therapy to process the exploitation in Tijuana and the trauma of the kidnapping. 
+*   **The Siblings' Welcome:** Her five siblings (Taylor Raven, Roberta Katherine, William Timothy Junior, Orin Lorin Junior, and Sun-Young "Liz") have to get to know a sister who is effectively a stranger. They are protective but struggle with the "new" Carlota who is guarded and quiet.
+*   **The Sibling Tension:** **Taylor Raven** is specifically frightened of Carlota. The younger sister's fear and avoidance add to Carlota's sense of isolation, making her feel like an outsider in her own family home.
+*   **Schooling:** She is enrolled in a private school in Vaughan, catching up on the years of education she missed or that were disrupted while in Mexico.
+
+### The Return of the Signs (TBD)
+[TBD — Does Carlota eventually re-learn ASL? Perhaps she starts by watching her siblings sign before she is ready to use it herself. The first time she signs to Sabrina again will be a major turning point in their healing.]
 
 ---
 
@@ -74,7 +82,8 @@ She no longer signs. The shared language with her deaf mother is gone.
 - **Sabrina Bryna Key (Mother):** Deaf. Communicates in ASL. Carlota once signed with her — after the kidnapping, that language is broken.
 - **Carlos Reyes (Father):** Kidnapper. Exploited her. Imprisoned in Mexico.
 - **William:** Sabrina Bryna's second partner. Present in Carlota's life before the kidnapping.
-- **Taylor Raven, Roberta Katherine, William Timothy Junior, Orin Lorin Junior, Sun-Young "Liz":** Her five half-siblings.
+- **Taylor Raven:** Younger half-sister. Taylor is frightened of Carlota and avoids her, which deeply hurts Carlota.
+- **Roberta Katherine, William Timothy Junior, Orin Lorin Junior, Sun-Young "Liz":** Her other four siblings.
 - **Pandora Paige Key (Cousin):** The one who found her. Pandora did NOT introduce herself in Tijuana — she photographed Carlota secretly and sent the image to Sabrina.
 - **Devon Smythson:** The nanny. Carlota saw her father kissing Devon at age three and told her mother. Devon stayed on after the split.
 

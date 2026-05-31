@@ -205,14 +205,15 @@ Carlos is arrested in Mexico City and imprisoned there.
 
 - **Full Name:** William [Surname TBD]
 - **Connection:** Connected to Sabrina Bryna Key — her **second relationship**, after Carlos.
+- **Profession:** **Pediatric Oncologist / Retinoblastoma Specialist** at **Toronto Sick Children's Hospital (SickKids)**.
 - **How They Meet:** Sabrina Bryna meets William at the **Toronto Sick Children's Hospital charity ball**. She is **twenty-seven**.
-- **ASL:** William **does not know American Sign Language** when they meet, but he is **willing to learn**.
+- **ASL:** William **does not know American Sign Language** when they meet, but he is **willing to learn**. He eventually becomes fluent.
 - **Age / Birth Timing:** [TBD]
 - **Family Background:** William has a **brother** (name TBD), who is the father of Orin Lorin Junior. William's brother and his spouse die in a **house fire**, leaving Orin Lorin Junior orphaned.
-- **Education:** [TBD]
+- **Education:** Medical Doctor (MD), specializing in Pediatric Oncology.
 - **Religion:** [TBD]
-- **Activities / Work:** [TBD]
-- **Traits:** [TBD]
+- **Activities / Work:** World-renowned specialist in Retinoblastoma. His work involves saving the sight of infants through genetic research and focal therapies.
+- **Traits:** Empathetic, calm, steady "anchor" for the family.
 
 ---
 
@@ -233,18 +234,11 @@ Sabrina Bryna and William have **five children together** (three biological, one
 - [Sun-Young "Liz"](sun-young-liz-profile.md) — Foster child (#5)
 - [Carlota Delicia Key](carlota-delicia-key-profile.md) — Daughter from Carlos (half-sister)
 
-### Questions to Develop
+### Relationship Dynamics
 
-- Does William learn ASL fluently, or does he rely on other communication methods?
-- What does Sabrina Bryna need from love that is different from what her sisters need?
-- How does William enter the Key family?
-- How does William relate to Carlota Delicia — both before and after the kidnapping?
-- What challenges test the relationship?
-- How does William support Sabrina during the forty-two months?
-- Birth timing for all five children.
-- How old is Orin Lorin Junior when his parents die? How does he adjust?
-- Sun-Young's background — how does she enter foster care? How old is she? How does she come to Sabrina and William?
-- How does Carlota Delicia relate to her five half-siblings — both before the kidnapping and after her return?
+- **The Anchor:** William provides the stability Sabrina needs, especially during the trauma of Carlota's kidnapping.
+- **Professional Impact:** His work with childhood cancer (Retinoblastoma) makes him deeply protective of his own children. He is the one who handles the medical and therapeutic side of Carlota's recovery.
+- **The SickKids Link:** His expertise becomes critical for the extended Key family, specifically when his nieces **Brandi Jessica and Pandora Paige** are diagnosed with Retinoblastoma.
 
 ---
 
@@ -265,6 +259,7 @@ Sabrina Bryna and William have **five children together** (three biological, one
 - [x] **The Kidnapping:** Carlos Reyes kidnaps Carlota Delicia (age 9) during a visitation. Takes her to Mexico City. Exploits her at a sleazy bar in Tijuana. Gone 42 months, found at ~12-13. After William is in Sabrina's life. Carlos imprisoned in Mexico. He breaks her ASL.
 - [x] Pandora Paige is ~16-17 at the time of the kidnapping; ~20 when Carlota is found.
 - [x] Pandora Paige finds Carlota: She notices her cousin in the sleazy Tijuana bar. She does NOT approach or introduce herself. She secretly photographs Carlota and sends the image to Sabrina Bryna — the first proof in 42 months that Carlota is alive.
+- [x] **William's Profession:** Pediatric Oncologist and Retinoblastoma specialist at SickKids.
 - [ ] Exact calendar date of birth.
 - [ ] Sabrina Bryna's education details at University of Toronto.
 - [ ] Details of Cerebral Palsy presentation and accommodations.
