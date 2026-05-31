@@ -65,6 +65,12 @@ Ashley Erin is one of the Key sisters who swims.
 
 ---
 
+## NOTABLE EVENTS
+
+- **Haden mocks Ashley Erin:** **Haden**, the first partner of Ashley Erin's older sister **Andrea Jennifer**, makes fun of Ashley Erin. In response, **Andrea Jennifer quickly ends her relationship with Haden**, and their father **Mike Key throws Haden out of his mansion**. (See `Andrea Jennifer/Andrea Jennifer.md`.) [Ashley Erin's perspective on the incident — TBD.]
+
+---
+
 # GEORGI
 
 ## BASIC INFORMATION

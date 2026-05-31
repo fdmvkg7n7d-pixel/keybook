@@ -13,7 +13,9 @@
 - **Mother:** Kiley Rose Key
 - **Father:** Lazaro da Silva (absent)
 - **Stepparent / Anchor:** Julia
-- **Education:** **Convent of the Sacred Heart**, New York City (91st Street, Upper East Side)
+- **Education:** **Convent of the Sacred Heart**, New York City (91st Street, Upper East Side) — K–12; later **University of Nevada, Las Vegas (UNLV)** for college
+- **Childhood Home:** New York City (raised with her twin, Pandora Paige)
+- **College Home:** **Las Vegas, Nevada** — where she lives while attending UNLV, and where she and **Jamal** live together once their relationship begins
 - **Religion:** Practicing Catholic
 - **Medical:** 
   - Child of a mother with Turner Syndrome (mosaic form)
@@ -98,6 +100,16 @@ At camp, Brandi Jessica is a force of nature. She navigates the camp paths with 
 *   **Gymnastics (Minor):** Keeping the physical language alive, she spends minor sessions in the gymnastics pavilion, tumbling on the spring floors with tactile rubber guides and audio clapping cues.
 *   **Swimming (Minor):** The lake at French Woods is the center of hot afternoons. Brandi Jessica is in the water with Pandora and their cousins, swimming laps and diving from the dock, completely free.
 *   **Radio Broadcasting (Minor):** She loves the camp's radio station, running a minor session where she hosts a music and talk show, utilizing her sharp memory and love for conversation.
+
+---
+
+## LAS VEGAS — THE UNLV YEARS
+
+After growing up in **New York City** with her twin, Pandora Paige, Brandi Jessica leaves home for college, attending the **University of Nevada, Las Vegas (UNLV)** (~2062–2067, ages ~18–22). Las Vegas becomes her adult home base during these years — a deliberate stretch of independence far from the family's New York and Halifax orbits, the grown-up extension of Julia's "Manhattan Drops" philosophy.
+
+It is in Las Vegas that her relationship with **Jamal** begins (when she is twenty-one, ~2065–2066), and the two live together there. Brandi Jessica and Jamal's Las Vegas home is where her younger cousin **Emerald Ginger** (Andrea Jennifer's daughter) runs to when she flees home in the third month of her pregnancy. (See `Andrea Jennifer/emerald-ginger-runs-to-brandi-jessica-and-jamal-scene-outline.md`.)
+
+The Manhattan joint-family era with Pandora Paige (below) comes **later**, after the Las Vegas college years, once the twins reunite to raise their children together.
 
 ---
 
