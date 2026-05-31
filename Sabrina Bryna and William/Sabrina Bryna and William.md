@@ -1,4 +1,4 @@
-# SABRINA BRYNA KEY & WILLIAM
+# SABRINA BRYNA KEY — TWO RELATIONSHIPS: CARLOS & WILLIAM
 
 ## Shared Character and Relationship File
 
@@ -15,7 +15,7 @@
 - **Biological Father:** Mike Key
 - **Medical / Disability:** Cerebral Palsy; deaf
 - **Language:** ASL
-- **Education:** [TBD]
+- **Education:** University of Toronto (attended)
 - **Religion:** Practicing Catholic [TBD if confirmed]
 - **Activities:** Yoga and swimming
 - **Traits:** [TBD]
@@ -39,9 +39,25 @@
 - **Andrea Jennifer Key** — younger sister; born eighteen months after Fallon Glenda.
 - **Ashley Erin Key** — youngest sister; born two years after Andrea Jennifer; transgender girl, assigned male at birth; original name Mikkel James Junior.
 
+### Children with William
+
+Sabrina Bryna and William have **five children together** (three biological, one nephew they raise as their own, and one foster child):
+
+| # | Name | Notes |
+|---|---|---|
+| 1 | **Taylor Raven Key** | Biological child. See [taylor-raven-key-profile.md](taylor-raven-key-profile.md). |
+| 2 | **Roberta Katherine Key** | Biological child. **Twin of William Timothy Junior.** See [roberta-katherine-key-profile.md](roberta-katherine-key-profile.md). |
+| 3 | **William Timothy Junior Key** | Biological child. Named after his father. **Twin of Roberta Katherine.** See [william-timothy-junior-key-profile.md](william-timothy-junior-key-profile.md). |
+| 4 | **Orin Lorin Junior** | Nephew of William (son of William's brother, name TBD). His parents die in a **house fire**. Sabrina Bryna and William take him in and raise him as their own — he is their fourth child. See [orin-lorin-junior-profile.md](orin-lorin-junior-profile.md). |
+| 5 | **Sun-Young** [Surname TBD], nickname **Liz** | Foster child. See [sun-young-liz-profile.md](sun-young-liz-profile.md). |
+
+### Daughter (from Carlos)
+
+- **Carlota Delicia Key** — daughter with Carlos Reyes; born when Sabrina Bryna is twenty-three. See [carlota-delicia-key-profile.md](carlota-delicia-key-profile.md).
+
 ---
 
-## KEY KNOWN EVENT
+## KEY KNOWN EVENTS
 
 ### The Family Meeting During Jessica Isabella's Hospitalization
 
@@ -53,16 +69,146 @@ She is not left out because she is young. She is not left out because she is dea
 
 This matters because it shows the Key family rule: no child is excluded from the truth just because telling it requires more care.
 
+### The Kidnapping of Carlota Delicia
+
+Carlota Delicia is **kidnapped at age nine** by her father, Carlos Reyes. She is gone for **forty-two months** — three and a half years.
+
+This is the central trauma of Sabrina Bryna's life. A deaf mother whose hearing daughter — the child who speaks to her in ASL, who told her the truth about Carlos and the nanny — is taken from her.
+
+[Full details — see THE KIDNAPPING section below.]
+
+### The Forty-Two Months
+
+For forty-two months, Sabrina Bryna does not know where her daughter is. She does not know if Carlota Delicia is alive.
+
+Carlos exploits Carlota at a **sleazy bar in Tijuana**, Mexico.
+
+[TBD — How does Sabrina survive this? How does William support her? How do the other five children cope? How does the Key family — Mike, Terri Anne, all seven sisters — respond?]
+
+### The Return
+
+Pandora Paige Key secretly photographs Carlota Delicia in a sleazy bar in Tijuana and sends the image to Sabrina Bryna. The photograph is the first proof in forty-two months that Carlota Delicia is alive.
+
+**Sabrina Bryna and William fly down to Tijuana.** With the help of the **police**, they get Carlota Delicia. Sabrina Bryna — deaf, with Cerebral Palsy, a mother who has spent three and a half years not knowing whether her daughter was alive — gets on a plane and crosses a border to bring Carlota Delicia home.
+Carlota Delicia comes home at approximately **twelve or thirteen years old**.
+
+[TBD — What condition is she in? What does she remember? How does the family heal? How does Sabrina rebuild with a daughter who no longer signs?]
+
 ---
 
-# WILLIAM
+# RELATIONSHIP ARC: CARLOS (FIRST RELATIONSHIP)
 
-## BASIC INFORMATION
+## CARLOS — PROFILE
+
+- **Full Name:** Carlos Reyes
+- **Connection:** Sabrina Bryna Key's first partner; father of Carlota Delicia Key. **Kidnapper of his own daughter.**
+- **Nationality:** Mexican
+- **Age:** One year older than Sabrina Bryna (20 when they meet)
+- **How They Meet:** University of Toronto — Sabrina Bryna is nineteen, Carlos is twenty.
+- **Education:** University of Toronto [details TBD]
+- **Religion:** [TBD]
+- **Activities / Work:** [TBD]
+- **Traits:** [TBD]
+- **ASL:** [TBD — did Carlos already know ASL when they met, or did he learn?]
+
+---
+
+## SABRINA BRYNA & CARLOS — RELATIONSHIP TIMELINE
+
+| Age (Sabrina) | Event |
+|---|---|
+| **19** | Meets **Carlos Reyes** (age 20) at the University of Toronto. They begin dating — her first relationship. |
+| **23** | Has **Carlota Delicia** with Carlos. |
+| **26** | Carlota Delicia (age 3) tells Sabrina Bryna that she saw **Carlos kissing her nanny Devon Smythson**. Carlos denies it; Sabrina trusts her daughter. Sabrina throws Carlos out of her Vaughan mansion. The relationship ends. |
+| ~**32** | **Carlos kidnaps Carlota Delicia, age nine.** She is gone for **forty-two months**. Carlos exploits her at a sleazy bar in Tijuana. |
+
+---
+
+## THE NANNY INCIDENT
+
+When Carlota Delicia is three years old, she sees her father, Carlos, kissing the nanny, **Devon Smythson**. Carlota Delicia — old enough to understand what she saw but young enough to be direct about it — tells Sabrina Bryna what she witnessed.
+
+Sabrina Bryna is twenty-six. Carlos is twenty-seven. Carlota Delicia is three.
+
+**Carlos denies the kiss.** Sabrina Bryna does not believe him — Carlota Delicia is clear about what she saw, and Sabrina trusts her daughter.
+
+### The Nanny: Devon Smythson
+
+- **Full Name:** Devon Smythson
+- Sabrina Bryna does **not** fire Devon Smythson. She determines that the responsibility lies with Carlos, not with the nanny, and chooses not to punish Devon for Carlos's actions.
+- Devon **stays on as nanny** after the split. Sabrina holds no grudge.
+
+### The Split
+
+Sabrina Bryna **throws Carlos out of her Vaughan mansion.** The relationship ends.
+
+### Aftermath (Pre-Kidnapping)
+
+- **Where Carlos goes:** Carlos returns to **Mexico City**, Mexico.
+- **Visitation:** Carlos gets **visitation rights** with Carlota Delicia. **This is a very awful mistake** — the visitation arrangement is a grave error and a source of ongoing pain and difficulty.
+
+---
+
+## THE KIDNAPPING
+
+**Carlos Reyes kidnaps his own daughter, Carlota Delicia Key.**
+
+She is **nine years old** when taken. She is gone for **forty-two months** — three and a half years.
+
+The kidnapping happens **after William has entered Sabrina Bryna's life** — William is part of the family when Carlota Delicia is taken.
+
+The visitation arrangement — that "very awful mistake" — gave Carlos the access he needed.
+
+At the time of the kidnapping, **Pandora Paige Key** (Kiley Rose's daughter, born December 25, 2044) is approximately **sixteen or seventeen years old**.
+
+### Where It Happens
+
+The kidnapping takes place in **Mexico City**, Mexico. Because the crime occurs on Mexican soil, Carlos is tried and imprisoned there.
+
+### Carlos Breaks Her ASL
+
+When Carlota Delicia returns after forty-two months, she **no longer uses American Sign Language with her mother**. Carlos has broken that. For three and a half years, he has kept her from the language she once shared with Sabrina — the language in which, at age three, she told Sabrina the truth that ended their relationship.
+
+This is its own devastation. Sabrina Bryna is deaf. Her hearing daughter once spoke to her in ASL. Now she does not. The kidnapping took more than time — it took the language between mother and daughter.
+
+### Before the Kidnapping
+
+Carlota Delicia is **nine years old**. The kidnapping occurs during a scheduled visitation. Carlos takes her to Mexico City. William is already in Sabrina's life.
+
+### During the Forty-Two Months
+
+Carlos keeps Carlota Delicia in Mexico City. During this time, he breaks her ASL — she stops using it entirely. He **exploits her at a sleazy bar in Tijuana**.
+
+[TBD — Does she attend school? Is she hidden? Does she know her mother is searching for her? What does Carlos tell her about Sabrina?]
+
+### How Carlota Delicia Is Found
+
+Carlota Delicia is found after forty-two months — approximately **twelve or thirteen years old** — in a **sleazy bar in Tijuana**, Mexico, where Carlos has been exploiting her.
+
+**Pandora Paige Key** (Kiley Rose's daughter, approximately **twenty years old** at this time) is in Tijuana. She notices Carlota Delicia in the sleazy bar. She recognizes her cousin. Pandora Paige does **not** approach or introduce herself — she does what she has been trained to do as a photographer: she **secretly takes a photograph** of Carlota Delicia.
+
+She sends that photograph to **Sabrina Bryna** — Carlota's mother, Pandora's aunt. The photograph is the first proof Sabrina has had in forty-two months that her daughter is alive.
+
+**Sabrina Bryna and William fly down to Tijuana.** With the help of the **police**, they get Carlota Delicia. After forty-two months of not knowing, Sabrina Bryna brings her daughter home.
+
+Carlos is arrested in Mexico City and imprisoned there.
+
+### Aftermath of the Kidnapping
+
+[TBD — Carlota Delicia returns home but no longer signs. What happens to Carlos (prison term)? How does Carlota recover? How does Sabrina rebuild their relationship without the shared language? How do the five other children respond to their sister's return?]
+
+---
+
+# RELATIONSHIP ARC: WILLIAM (SECOND RELATIONSHIP)
+
+## WILLIAM — PROFILE
 
 - **Full Name:** William [Surname TBD]
-- **Connection:** Connected to Sabrina Bryna Key
+- **Connection:** Connected to Sabrina Bryna Key — her **second relationship**, after Carlos.
+- **How They Meet:** Sabrina Bryna meets William at the **Toronto Sick Children's Hospital charity ball**. She is **twenty-seven**.
+- **ASL:** William **does not know American Sign Language** when they meet, but he is **willing to learn**.
 - **Age / Birth Timing:** [TBD]
-- **Family Background:** [TBD]
+- **Family Background:** William has a **brother** (name TBD), who is the father of Orin Lorin Junior. William's brother and his spouse die in a **house fire**, leaving Orin Lorin Junior orphaned.
 - **Education:** [TBD]
 - **Religion:** [TBD]
 - **Activities / Work:** [TBD]
@@ -70,33 +216,74 @@ This matters because it shows the Key family rule: no child is excluded from the
 
 ---
 
-# SABRINA BRYNA & WILLIAM — RELATIONSHIP NOTES
+## SABRINA BRYNA & WILLIAM — RELATIONSHIP NOTES
 
-## Status
+### Status
 
-[TBD]
+Together. Married? [TBD]
 
-## Questions to Develop
+### Children
 
-- How old are Sabrina Bryna and William when they meet?
-- Where do they meet?
-- Does William already know ASL?
-- Does William learn ASL because of Sabrina, or do they communicate another way?
+Sabrina Bryna and William have **five children together** (three biological, one nephew they raise as their own, and one foster child). Each child has an individual profile file:
+
+- [Taylor Raven Key](taylor-raven-key-profile.md) — Biological child (#1)
+- [Roberta Katherine Key](roberta-katherine-key-profile.md) — Biological child (#2), twin of William Timothy Junior
+- [William Timothy Junior Key](william-timothy-junior-key-profile.md) — Biological child (#3), twin of Roberta Katherine
+- [Orin Lorin Junior](orin-lorin-junior-profile.md) — Nephew (#4), parents died in a house fire
+- [Sun-Young "Liz"](sun-young-liz-profile.md) — Foster child (#5)
+- [Carlota Delicia Key](carlota-delicia-key-profile.md) — Daughter from Carlos (half-sister)
+
+### Questions to Develop
+
+- Does William learn ASL fluently, or does he rely on other communication methods?
 - What does Sabrina Bryna need from love that is different from what her sisters need?
 - How does William enter the Key family?
+- How does William relate to Carlota Delicia — both before and after the kidnapping?
 - What challenges test the relationship?
-- Do they have children? If yes, names and birth timing TBD.
+- How does William support Sabrina during the forty-two months?
+- Birth timing for all five children.
+- How old is Orin Lorin Junior when his parents die? How does he adjust?
+- Sun-Young's background — how does she enter foster care? How old is she? How does she come to Sabrina and William?
+- How does Carlota Delicia relate to her five half-siblings — both before the kidnapping and after her return?
 
 ---
 
 ## OPEN ITEMS
 
 - [x] Exact birth timing relative to Kiley Rose: Sabrina Bryna is born eighteen months after Kiley Rose.
+- [x] Sabrina Bryna's first relationship: meets Carlos Reyes at 19 at University of Toronto; has Carlota Delicia at 23; relationship ends at 26 after Carlota (age 3) reports Carlos kissing Devon Smythson. Carlos denies it; Sabrina throws him out of her Vaughan mansion.
+- [x] Carlos Reyes: Mexican. Returns to Mexico City after being thrown out.
+- [x] Carlota Delicia Key: daughter with Carlos, born when Sabrina Bryna is 23. Hearing child; uses ASL with Sabrina.
+- [x] Devon Smythson: nanny. Sabrina does not fire her — fault lies with Carlos. Stays on after the split.
+- [x] Visitation: Carlos gets visitation with Carlota Delicia. This is a very awful mistake — it enables the kidnapping.
+- [x] William: Sabrina Bryna meets William at the Toronto Sick Children's Hospital charity ball when she is twenty-seven. William does not know ASL.
+- [x] William learns ASL: William is willing to learn.
+- [x] Sabrina Bryna and William's children: five children — Taylor Raven, Roberta Katherine, William Timothy Junior (biological twins), Orin Lorin Junior (nephew, their 4th), Sun-Young "Liz" (foster, their 5th).
+- [x] Roberta Katherine and William Timothy Junior are twins.
+- [x] Orin Lorin Junior: William's nephew. Parents die in a house fire. Sabrina and William raise him as their fourth child.
+- [x] Sun-Young "Liz": foster child. Sabrina and William's fifth child.
+- [x] **The Kidnapping:** Carlos Reyes kidnaps Carlota Delicia (age 9) during a visitation. Takes her to Mexico City. Exploits her at a sleazy bar in Tijuana. Gone 42 months, found at ~12-13. After William is in Sabrina's life. Carlos imprisoned in Mexico. He breaks her ASL.
+- [x] Pandora Paige is ~16-17 at the time of the kidnapping; ~20 when Carlota is found.
+- [x] Pandora Paige finds Carlota: She notices her cousin in the sleazy Tijuana bar. She does NOT approach or introduce herself. She secretly photographs Carlota and sends the image to Sabrina Bryna — the first proof in 42 months that Carlota is alive.
 - [ ] Exact calendar date of birth.
-- [ ] Sabrina Bryna's education and communication environment.
+- [ ] Sabrina Bryna's education details at University of Toronto.
 - [ ] Details of Cerebral Palsy presentation and accommodations.
-- [ ] William's full name, age, background, and role.
-- [ ] Sabrina Bryna and William's relationship arc.
+- [ ] Devon Smythson's background and full story.
+- [ ] Key family's response to the Carlos split and visitation arrangement.
+- [ ] Carlota Delicia's life during the forty-two months — schooling, hiding, what Carlos tells her.
+- [ ] Why Pandora Paige is in Tijuana.
+- [ ] Details of the photograph and Sabrina's reaction to receiving it.
+- [ ] Carlos's prison term duration.
+- [ ] How Sabrina Bryna survives the forty-two months.
+- [ ] How the Key family responds to the kidnapping.
+- [ ] William's role during the kidnapping and search.
+- [ ] Carlota Delicia's recovery and reintegration after returning — especially rebuilding communication with Sabrina without ASL.
+- [ ] William's surname, age, and background.
+- [ ] Birth timing of all five children.
+- [ ] William's brother's name.
+- [ ] How old Orin Lorin Junior is when his parents die.
+- [ ] Sun-Young's surname, background, age, and how she enters foster care.
+- [ ] How Carlota Delicia relates to her five half-siblings (Taylor Raven, Roberta Katherine, William Timothy Junior, Orin Lorin Junior, and Sun-Young).
 
 ---
 
